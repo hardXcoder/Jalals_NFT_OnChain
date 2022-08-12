@@ -1,3 +1,3 @@
 # Jalals_NFT_onchain_game-mech
 
-Coming Soon
+Coming 25th Aug
